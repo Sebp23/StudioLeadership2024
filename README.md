@@ -1,1 +1,1 @@
-# StudioLeadership2024
+# Studio Leadership 2024
